@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Patel Amit
+- 👀 I’m interested in exporing new things, tech guy and proud to be indian.
+- 🌱 I’m currently learning new technology and working as freelancer.
+- I am happy help someone who actualy in trouble.
